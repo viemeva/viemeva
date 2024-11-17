@@ -15,6 +15,8 @@ I have major trust issues, BPD, severe loneliness, emotional detachment issues, 
 
 Please don't interact with me too much. If you try to start a long conversation with me, it can make me overwhelmed and uncomfortable.
 
+I frequently enjoy cuddles; it brings me a bit of comfort.
+
 I sometimes have Touch Discomfort and/or Crowd/Cover Discomfort. Please respect my discomforts... Don't be an asshole and start rapidly booping me or covering me. (I find booping as an offensive gesture whenever I'm in a bad mood)
 
 I'm usually afk because I'll always be on my phone or pc playing another game, so just send me a whisper if you want to interact with me. But, if I'm not interested, I won't respond to your whisper.
