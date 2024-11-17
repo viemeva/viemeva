@@ -1,6 +1,6 @@
 ᶜᵒᵐᶠᵒʳᵗ ᶜʰᵃʳᵃᶜᵗᵉʳˢ
 
-<img src="https://github.com/user-attachments/assets/7e6d243f-24e9-4bd1-ac83-682efd8d6311" width="400" height="400">
+<img src="https://github.com/user-attachments/assets/7e6d243f-24e9-4bd1-ac83-682efd8d6311" width="300" height="300">
 
 𝖇𝖊𝖘𝖙 𝖋𝖆𝖙𝖍𝖊𝖗 ✧ 𝖇𝖊𝖘𝖙 𝖒𝖔𝖙𝖍𝖊𝖗
 
