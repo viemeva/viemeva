@@ -1,3 +1,8 @@
+<p align="center">
+<img width="150" src="https://github.com/user-attachments/assets/f8aba271-2259-4dd2-815f-f046d7f80348"
+</p>
+
+
 <h1 align="center">ᵃʳᵗ ˢʰᵒʷᶜᵃˢᵉ</h1>
 
 <h1 align="center">∘₊✧────────────✧₊∘</h1>
