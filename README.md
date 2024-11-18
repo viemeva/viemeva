@@ -8,7 +8,7 @@
 <h1 align="center">∘₊✧────────────✧₊∘</h1>
 
 
-![](https://github.com/user-attachments/assets/ac525aae-f762-4867-b482-59603c3fc4b0)
+![](https://github.com/user-attachments/assets/9b278015-f2c6-498d-ae44-534696c332e3)
 
 
 
