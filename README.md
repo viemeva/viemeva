@@ -3,7 +3,7 @@
 <h1 align="center">∘₊✧────────────✧₊∘</h1>
 
 
-![](https://github.com/user-attachments/assets/5c7cb49e-d1f7-4fd3-bcf5-d7e08c1337ea)
+![](https://github.com/user-attachments/assets/ac525aae-f762-4867-b482-59603c3fc4b0)
 
 
 
