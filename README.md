@@ -1,5 +1,7 @@
 <h1 align="center">ᵃʳᵗ ˢʰᵒʷᶜᵃˢᵉ</h1>
 
+<h1 align="center">∘₊✧────────────✧₊∘</h1>
+
 
 ![](https://github.com/user-attachments/assets/5c7cb49e-d1f7-4fd3-bcf5-d7e08c1337ea)
 
@@ -8,6 +10,8 @@
 
 
 ! ( ⁱ'ᵐ ⁿᵒᵗ ⁱⁿ ᵗʰᵉ ᴴᴴ ᶠᵃⁿᵈᵒᵐ, ⁱ ʲᵘˢᵗ ˡⁱᵏᵉ ᶜᵃʳᵐⁱˡˡᵃ ᶜᵃʳᵐⁱⁿᵉ ) !
+
+<h1 align="center">- - ┈┈∘┈˃̶༒˂̶┈∘┈┈ - -</h1>
 
 <p align="center">
 More information on me.
