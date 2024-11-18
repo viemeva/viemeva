@@ -7,14 +7,19 @@
 
 
 
-! i'm not in the HH fandom, i just like carmilla carmine
+! ( ⁱ'ᵐ ⁿᵒᵗ ⁱⁿ ᵗʰᵉ ᴴᴴ ᶠᵃⁿᵈᵒᵐ, ⁱ ʲᵘˢᵗ ˡⁱᵏᵉ ᶜᵃʳᵐⁱˡˡᵃ ᶜᵃʳᵐⁱⁿᵉ ) !
 
-
+<p align="center">
 More information on me.
+</p>
 
+<p align="center">
 𝔳𝔦𝔢𝔩 / 𝔪𝔦𝔳𝔢𝔩𝔩𝔞
+</p>
 
+<p align="center">
 ~ ----- ✦ ----- ~
+</p>
 
 I have major trust issues, BPD, severe loneliness, emotional detachment issues, and bipolar mood swings. I sometimes suddenly fall into a depressive episode and tend to distance myself a lot from people I know and even unfriend them, so I try to keep myself from friending others. I also hate making friends because I'm very used to being independent, and it's difficult for me to trust people.
 
