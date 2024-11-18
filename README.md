@@ -1,13 +1,13 @@
-ᶜᵒᵐᶠᵒʳᵗ ᶜʰᵃʳᵃᶜᵗᵉʳˢ
+<h1 align="center">ᵃʳᵗ ˢʰᵒʷᶜᵃˢᵉ</h1>
 
-<img src="https://github.com/user-attachments/assets/7e6d243f-24e9-4bd1-ac83-682efd8d6311" width="300" height="300">
+<img src="https://github.com/user-attachments/assets/2d0fd75b-6592-4636-89c1-2566a2dc47cf">
 
-𝖇𝖊𝖘𝖙 𝖋𝖆𝖙𝖍𝖊𝖗 ✧ 𝖇𝖊𝖘𝖙 𝖒𝖔𝖙𝖍𝖊𝖗
+! 𝔦'𝔪 𝔫𝔬𝔱 𝔦𝔫 𝔱𝔥𝔢 𝔥𝔥 𝔣𝔞𝔫𝔡𝔬𝔪, 𝔦 𝔧𝔲𝔰𝔱 𝔩𝔦𝔨𝔢 𝔠𝔞𝔯𝔪𝔦𝔩𝔩𝔞 𝔠𝔞𝔯𝔪𝔦𝔫𝔢 !
 
-  ᵃʳˡᵉ ʷⁱᵈᵒʷ
-        
+
 More information on me.
-Viel/Mivella
+
+𝔳𝔦𝔢𝔩 / 𝔪𝔦𝔳𝔢𝔩𝔩𝔞
 
 ~ ----- ✦ ----- ~
 
@@ -20,3 +20,8 @@ I frequently enjoy cuddles; it brings me a bit of comfort.
 I sometimes have Touch Discomfort and/or Crowd/Cover Discomfort. Please respect my discomforts... Don't be an asshole and start rapidly booping me or covering me. (I find booping as an offensive gesture whenever I'm in a bad mood)
 
 I'm usually afk because I'll always be on my phone or pc playing another game, so just send me a whisper if you want to interact with me. But, if I'm not interested, I won't respond to your whisper.
+
+<p align="center">
+<img width="500" src="https://github.com/user-attachments/assets/94b6c5b7-9c02-4d13-b687-ed1b97b59ed7"
+</p>
+
