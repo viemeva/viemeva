@@ -40,6 +40,8 @@ I sometimes have Touch Discomfort and/or Crowd/Cover Discomfort. Please respect 
 
 I'm usually afk because I'll always be on my phone or pc playing another game, so just send me a whisper if you want to interact with me. But, if I'm not interested, I won't respond to your whisper.
 
+( If you want to be my friend just whisper me or send me a friend request. If I don't know you that much I won't accept. )
+
 <p align="center">
 <img width="500" src="https://github.com/user-attachments/assets/6c643ef8-4d29-46fc-86b7-89993abcbe19"
 </p>
