@@ -41,7 +41,7 @@ More information on me.
 
 I have major trust issues, BPD, severe loneliness, emotional detachment issues, and bipolar mood swings. I sometimes suddenly fall into a depressive episode and tend to distance myself a lot from people I know and even unfriend them, so I try to keep myself from friending others. I also hate making friends because I'm very used to being independent, and it's difficult for me to trust people. ( At very rare occasions, I do make friends. If you want to be my friend just whisper me or send me a friend request. If I don't know you that much or at all, I won't accept. )
 
-Please don't interact with me too much. If you try to start a long conversation with me, it can make me overwhelmed and uncomfortable.  ( int freely on my atabook )
+Please don't interact with me too much. If you try to start a long conversation with me, it can make me overwhelmed and uncomfortable.
 
 I frequently enjoy cuddles; it brings me a bit of comfort.
 
