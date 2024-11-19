@@ -1,11 +1,17 @@
 <p align="center">
 <img width="100" src="https://github.com/user-attachments/assets/a665c068-0fe1-46b4-982b-d9a992a52a55"
-</p>
+  
+<p align="center">
+<img width="81" src="https://github.com/user-attachments/assets/07bf0c3a-2b2c-49e3-86cb-61458b75456b"
 
 
-<h1 align="center">ᵃʳᵗ ˢʰᵒʷᶜᵃˢᵉ</h1>
+<h1 align="center"></h1>
 
 <h1 align="center">∘₊✧────────────✧₊∘</h1>
+
+<h1 align="center"></h1>
+
+<h1 align="center">ᵃʳᵗ ˢʰᵒʷᶜᵃˢᵉ</h1>
 
 
 ![](https://github.com/user-attachments/assets/14064a01-c7ab-44e7-842f-c0df7d2c37f1)
