@@ -39,7 +39,7 @@ More information on me.
 ~ ----- ✦ ----- ~
 </p>
 
-I have major trust issues, BPD, severe loneliness, emotional detachment issues, and bipolar mood swings. I sometimes suddenly fall into a depressive episode and tend to distance myself a lot from people I know and even unfriend them, so I try to keep myself from friending others. I also hate making friends because I'm very used to being independent, and it's difficult for me to trust people.
+I have major trust issues, BPD, severe loneliness, emotional detachment issues, and bipolar mood swings. I sometimes suddenly fall into a depressive episode and tend to distance myself a lot from people I know and even unfriend them, so I try to keep myself from friending others. I also hate making friends because I'm very used to being independent, and it's difficult for me to trust people. ( At very rare occasions, I do make friends. If you want to be my friend just whisper me or send me a friend request. If I don't know you that much or at all, I won't accept. )
 
 Please don't interact with me too much. If you try to start a long conversation with me, it can make me overwhelmed and uncomfortable.  ( int freely on my atabook )
 
@@ -48,8 +48,6 @@ I frequently enjoy cuddles; it brings me a bit of comfort.
 I sometimes have Touch Discomfort and/or Crowd/Cover Discomfort. Please respect my discomforts... Don't be an asshole and start rapidly booping me or covering me. ( I find booping as an offensive gesture whenever I'm in a bad mood )
 
 I'm usually afk because I'll always be on my phone or pc drawing, watching yt, or playing another game, so just send me a whisper if you want to interact with me. But, if I'm not interested, I won't respond to your whisper.
-
-( At very rare occasions, I do make friends. If you want to be my friend just whisper me or send me a friend request. If I don't know you that much or at all, I won't accept. )
 
 <p align="center">
 <img width="500" src="https://github.com/user-attachments/assets/6c643ef8-4d29-46fc-86b7-89993abcbe19"
