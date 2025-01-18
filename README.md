@@ -19,7 +19,7 @@
 <h1 align="center">ᵃʳᵗ ˢʰᵒʷᶜᵃˢᵉ</h1>
 
 
-![](https://github.com/user-attachments/assets/635015db-08a4-4649-89b6-a025af1824d2)
+![](https://i.postimg.cc/RFNTGz0G/HIIH9431-1.png)
 
 
 
