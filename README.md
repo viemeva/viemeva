@@ -59,7 +59,7 @@ I sometimes have Touch Discomfort and/or Crowd/Cover Discomfort. Please respect 
 <p align="center">
 <img src="https://media.discordapp.net/attachments/1330337255813943419/1330337329172320256/IMG_0975.png?ex=678d9caf&is=678c4b2f&hm=98ddfc9b6a0e0c8cbdc24a5e61177d49ff413ba1c55cf26b963f0d94bcc275dd&=&format=webp&quality=lossless&width=574&height=399" width="200">
 
-<h1 align="center">(ᴵ ᵘˢᵘᵃˡˡʸ ʲᵒᶦⁿ ʷʰᶦᵗᵉᵇᵒᵃʳᵈˢ. ᴵᶠ ʸᵒᵘ ˢᵉᵉ ᵐᵉ ˢᵃʸ ʰᶦ ᵒʳ ᶜᵒᵐᵖˡᶦᵐᵉⁿᵗ ᵐʸ ᵃʳᵗ, ᴵ ᵃᵖᵖʳᵉᶜᶦᵃᵗᵉ ᶦᵗ.)</h1>
+<h1 align="center">(ᴵ ᵘˢᵘᵃˡˡʸ ʲᵒᶦⁿ ʷʰᶦᵗᵉᵇᵒᵃʳᵈˢ. ᴵᶠ ʸᵒᵘ ˢᵉᵉ ᵐᵉ, ˢᵃʸ ʰᶦ ᵒʳ ᶜᵒᵐᵖˡᶦᵐᵉⁿᵗ ᵐʸ ᵃʳᵗ, ᴵ ᵃᵖᵖʳᵉᶜᶦᵃᵗᵉ ᶦᵗ.)</h1>
 
 
 
