@@ -54,6 +54,15 @@ I frequently enjoy cuddles; it brings me a bit of comfort.  (I'll never approach
 
 I sometimes have Touch Discomfort and/or Crowd/Cover Discomfort. Please respect my discomforts... Don't be an asshole and start rapidly booping me or covering me. (I find booping as an offensive gesture whenever I'm in a bad mood)
 
+<h1 align="center">•┈••✦ --- ✦••┈•</h1>
+
+<p align="center">
+<img src="https://media.discordapp.net/attachments/1330337255813943419/1330337329172320256/IMG_0975.png?ex=678d9caf&is=678c4b2f&hm=98ddfc9b6a0e0c8cbdc24a5e61177d49ff413ba1c55cf26b963f0d94bcc275dd&=&format=webp&quality=lossless&width=574&height=399" width="200">
+
+<h1 align="center">(I usually join whiteboards. If you see me say hi or compliment my art, I appreciate it.)</h1>
+
+
+
 <p align="center">
 <img width="500" src="https://github.com/user-attachments/assets/6c643ef8-4d29-46fc-86b7-89993abcbe19"
 </p>
