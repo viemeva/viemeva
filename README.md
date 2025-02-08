@@ -19,7 +19,7 @@
 <h1 align="center">ᵃʳᵗ ˢʰᵒʷᶜᵃˢᵉ</h1>
 
 <p align="center">
- <img src="https://media.discordapp.net/attachments/1334961590596009997/1334961635319877733/Untitled2517_20250118175359.png?ex=679e6f68&is=679d1de8&hm=f5e59803a5a277cbf1a6c7eb116d3c8635bc03ffc23e94ff35c3488d292bc7c2&=&format=webp&quality=lossless&width=697&height=599" />
+ <img src="https://media.discordapp.net/attachments/1337915162832670743/1337916348218474596/Untitled2517_20250118175359.png?ex=67a92f32&is=67a7ddb2&hm=9fb1298a7fa511efd1cb458cc66bd782c734aaba6d94be888b87e2fa1d1a0c23&=&format=webp&quality=lossless&width=697&height=599" />
 </p>
 
 
