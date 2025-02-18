@@ -18,9 +18,7 @@
 
 <h1 align="center">ᵃʳᵗ ˢʰᵒʷᶜᵃˢᵉ</h1>
 
-<p align="center">
- <img src="https://media.discordapp.net/attachments/1337915162832670743/1337924343031791746/Untitled2517_20250208171327.png?ex=67a936a4&is=67a7e524&hm=682498d86f6b10843e27c8b578104efb54d47a0e2c3cfa8878daadbc8944a48f&=&format=webp&quality=lossless&width=697&height=599" />
-</p>
+[![Untitled2517-20250208171327.png](https://i.postimg.cc/LsYDftfS/Untitled2517-20250208171327.png)](https://postimg.cc/p9vKMnqc)
 
 
 
