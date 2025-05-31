@@ -45,7 +45,7 @@ More information on me.
 ~ ----- ✦ ----- ~
 </p>
 
-(𝐖𝐡𝐢𝐬𝐩𝐞𝐫𝐬 𝐝𝐢𝐬𝐚𝐛𝐥𝐞𝐝 𝐝𝐮𝐞 𝐭𝐨 𝐬𝐮𝐩𝐩𝐨𝐫𝐭𝐞𝐫 𝐛𝐞𝐠𝐠𝐚𝐫𝐬. 𝐎𝐧𝐥𝐲 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭 𝐰𝐢𝐭𝐡 𝐦𝐞 𝐨𝐧 𝐀𝐭𝐚𝐛𝐨𝐨𝐤.)
+
 
 I have major trust issues, BPD, severe loneliness, emotional detachment issues, and bipolar mood swings. I sometimes suddenly fall into a depressive episode and tend to distance myself a lot from people I know and even unfriend them, so I try to keep myself from friending others. I also hate making friends because I'm very used to being independent, and it's difficult for me to trust people.
 
