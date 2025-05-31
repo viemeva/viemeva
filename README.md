@@ -53,7 +53,6 @@ Please don't interact with me too much. If you try to start a long conversation 
 
 I frequently enjoy cuddles; they bring me a bit of comfort.  (I'll never approach anyone for cuddles because I'm always afraid they'll run away or judge me.)
 
-I sometimes have Touch Discomfort and/or Crowd/Cover Discomfort. Please respect my discomforts... Don't be an asshole and start rapidly booping me or covering me. (I find booping as an offensive gesture whenever I'm in a bad mood)
 
 <h1 align="center">──•┈••✦ --- ✦••┈•──
 
